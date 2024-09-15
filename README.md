@@ -1,2 +1,0 @@
-# kenichikawaguchi.github.io
-Hello.
